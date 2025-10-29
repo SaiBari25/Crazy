@@ -1,4 +1,5 @@
 https://saibari25.github.io/Crazy/
+this only works on pc BTW
 
 Check this out and you will surely notice something crazy🔥❤️‍🔥🔥
 
